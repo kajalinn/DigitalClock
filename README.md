@@ -2,4 +2,4 @@
 
 Autori nimi on **Nikita Kajalin**. 
 
-![enter image description here](https://i.imgur.com/1AraSg9.png)
+![enter image description here](https://i.imgur.com/CN2Xz6t.png)
